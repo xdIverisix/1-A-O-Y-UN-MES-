@@ -1,2 +1,2 @@
-# 1-A-O-Y-UN-MES-
+# pequeño detalle
 Para mi novia y futura esposa xd
